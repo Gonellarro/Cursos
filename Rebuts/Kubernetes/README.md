@@ -1,1 +1,0 @@
-Primer fitxer
